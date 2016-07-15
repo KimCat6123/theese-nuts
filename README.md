@@ -1,2 +1,2 @@
 # theese-nuts
-Aqua tai-chi, kung fu movies , star trek , gems&amp;minerals cute animals and insects
+Aqua tai-chi, family , kung fu movies , star trek , gems&and minerals cute animals and insects those are some things that make me happy
